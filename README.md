@@ -1,3 +1,2 @@
 # a1
-learning
-i love to play games and watch videos
+ I'm useing this for learning I love to play video games 
